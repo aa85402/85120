@@ -19,4 +19,4 @@ SEO方面，我们在内容结构中加入大量长尾关键词，例如“日�
 我们倡导合法合规观影，平台仅提供公版或授权资源链接，建议用户搭配合规VPN访问，保护隐私同时符合各地区法律法规。无论你是资深影迷，还是刚入坑的新手，这里都能找到心仪的作品。收藏本站，每天都有新发现，让“日本AV免费”成为一种高品质而安心的享受。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/85120 ）</span>
